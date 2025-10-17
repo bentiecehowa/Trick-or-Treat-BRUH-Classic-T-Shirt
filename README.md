@@ -2,9 +2,10 @@
 “Trick or Treat BRUH! Classic T-Shirt” – The Perfect Halloween Vibe
 The "Trick or Treat BRUH!" costume is a great option this Halloween if you want to mix style and humor. 
 Your first choice is "Classic T-Shirt." This t-shirt strikes the perfect
-![Image Alt](image_url)
 
 [Bey Now](https://www.fabulousteeclub.com/trick-or-treat-bruh)
+
+![Image Alt](https://github.com/bentiecehowa/Trick-or-Treat-BRUH-Classic-T-Shirt/blob/15131bdc6af6bb8246b99b3b095098e39dee55af/BRUH.jpeg?raw=true)
 
 [Bey Now](https://www.fabulousteeclub.com/trick-or-treat-bruh)
 
